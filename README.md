@@ -51,6 +51,9 @@ Tengo una hermosa perra salchicha gorda bachicha de sobrina **uwu**
 Su nombre es Jazmín, pero yo la llamo Chancho 🐷 porque hace tremendos ruiditos de chancho. Acá en casa tiene mil nombres: Jaz, Mimin, Toti, Charly, Mona, etc, etc, etc. ***Básicamente el que se te ocurra en el momento, a ella le viene bien todo.***
 
 ![Chancho](chancho3.jpg)
+![Chancho](chancho4.jpg)
+![Chancho](chancho5.jpg)
+![Chancho](chancho6.jpg)
 
 Le encanta la cama y odia quedarse solita en casa unu
 
